@@ -1,1 +1,0 @@
-Setyadi Tri Hartanto, Silahkan untuk follow dan tap
